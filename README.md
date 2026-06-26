@@ -1,2 +1,1 @@
-# 1shot-gallery
-Coming soon…
+# 1sh•t gA1leRy
